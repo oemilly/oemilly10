@@ -1,1 +1,42 @@
-# oemilly10
+* * bem vindo ao meu perfil
+    
+meu nome é Emilly de oliveira
+
+estou estudando na [Alura] (https://www.alura.com.br/).
+
+
+
+                                                                            
+                                                                                                        
+                                                                                                        
+                                                                                                        
+                                                                                                        
+                                                                                                        
+                                                                                                        
+                                                                                                        
+                                                                                                        
+                                                                                                       
+                                                                                                       
+                                                                                                       
+                                                                                                       
+                                                                                                       
+                                                                                                       
+                                                                                                                                                                             
+                                                                                                       
+                                                                                                       
+                                                                                                       
+                                                                                                              
+                                                                                                                                                                                                          
+                                                                                                     
+                                                                                                     
+                                                                                                     
+                                                                                                     
+                                                                                                     
+                                                                                                     
+                                                                                                     
+                                                                                                     
+                                                                                                     
+                                                                                                     
+                                                                                                     
+                                                                                                     
+                                                                                          
