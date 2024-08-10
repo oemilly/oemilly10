@@ -1,13 +1,17 @@
-* * bem vindo ao meu perfil
+**Bem Vindo** 🥛
     
-meu nome é Emilly de oliveira
+meu nome é Emilly de Oliveira
 
-estou estudando na [Alura] (https://www.alura.com.br/).
+Estou me desenvolvendo na linguagem JavaScript
 
+Eu sou estudante na [Alura](https://www.alura.com.br)
+
+![](https://media1.tenor.com/m/5pKMu2tnBmwAAAAC/spongbob-spongebob-squarepants.gif)
 
 
                                                                             
                                                                                                         
+
                                                                                                         
                                                                                                         
                                                                                                         
